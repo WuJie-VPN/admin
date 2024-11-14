@@ -18,13 +18,12 @@
 
 请使用浏览器下载安装包
  - - - -
-**:bird:. [Twitter](https://twitter.com/HongXingKF)** 
- 
-**:airplane:. [Telegeam客服]https://t.me/kfhongxing**        
-**:e-mail:. [邮件联系我们]wujiekf@gmail.com** 
+**:bird:--- [Twitter](https://twitter.com/HongXingKF)** 
+**:airplane:--- [Telegeam客服]https://t.me/kfhongxing**        
+**:e-mail:--- [邮件联系我们]wujiekf@gmail.com** 
              
  - - - -
- #### ...专线传输 不限流量 不限速度 永不失联...
+ #### ...专线传输. 不限流量. 不限速度. 永不失联...
 
 
  
